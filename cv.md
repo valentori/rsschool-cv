@@ -1,4 +1,4 @@
-
+![Avatar](avatar_small.jpg)
 
 # Valentina Krivonos #
 
